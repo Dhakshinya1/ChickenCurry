@@ -1,0 +1,1 @@
+Chicken , Onion , Turmeric , Red Chilli Powder , Salt , Ginger garlic Paste , Oil 
